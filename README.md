@@ -5,3 +5,6 @@
 - ✨ I’m planning to build my own Algorithmic Trading project.
 - ⚡ I'm highly interested in driving business innovation through automation and AI.
 - 💞️ I'm looking to connect and interact with like-minded people.
+
+🤝Let's get in touch:
+- LinkedIn - https://www.linkedin.com/in/lapwa-anthonykwong/
